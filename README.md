@@ -1,16 +1,18 @@
-## Hi there 👋
+## Olá, Seja muito bem vindo(a) ao meu perfil! 👋
 
-<!--
-**estudantealuraJU/estudantealuraJu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ **Meu nome é Julia Bezerril**
 
-Here are some ideas to get you started:
+- Cursando o Ensino Médio. ✍🏻
+- Ginasta dedicada, participando de treinos e competições há 10 anos. 🤸
+- Apredendo programação _(Java Script)_. 💻
+- Gosto de ter uma vida calma e tranquila. 🕊️
+- Tenho interesse em cursar Administração ou Fisioterapia, áreas que refletem desejo de trabalhar com pessoas e ajudar a melhorar suas vidas. 👩‍⚕️
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+  ### Estou entusiasmada para conectar-me com pessoas que alinhem-se com meus interesses! 🚀
+
+  Entre em contato no [LINKEDIM](https://www.linkedin.com/in/julia-bezerril-souza-4667662b4/)
+  
+
+!{}(https://c.tenor.com/IzRLd2T9jf8AAAAC/tenor.gif)
