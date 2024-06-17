@@ -15,4 +15,4 @@
   Entre em contato no [LINKEDIM](https://www.linkedin.com/in/julia-bezerril-souza-4667662b4/)
   
 
-!{}(https://c.tenor.com/IzRLd2T9jf8AAAAC/tenor.gif)
+![](https://media1.tenor.com/m/IzRLd2T9jf8AAAAC/charliebrown-snoopy.gif)
